@@ -2,6 +2,4 @@
 Dude
 ala bala
 
-are be
-
-hahahaha
+hahahahaami sega?
